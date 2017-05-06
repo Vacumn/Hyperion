@@ -1,2 +1,2 @@
 # Hyperion
-Start
+I am Cicero.
